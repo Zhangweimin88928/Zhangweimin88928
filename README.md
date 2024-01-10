@@ -1,5 +1,6 @@
 # 💫 About Me:
 
+I'm energetic, cheerful, and proactive with a willingness to take on challenges, I possess a background in information technology, digital and social media marketing, and sustainability. Enthusiastic about participating in business competitions, I have accumulated experience in project development, fostering teamwork, and honing leadership and collaborative skills.
 
 
 # 💻 Tech Stack:
